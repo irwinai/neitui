@@ -188,6 +188,76 @@ https://vrfi1sk8a0.jobs.feishu.cn/referral/position?token=MzsxNjc4ODYyODEyNzYzOz
 
 联系人：虫子猎人
 
+## 21.盒马，飞猪，淘系
+
+地址：杭州
+
+岗位：多种
+
+联系人：群内联系
+
+## 22.中信银行
+
+地址：北京
+
+岗位：架构师
+
+邮箱：10088647@qq.com
+
+## 23.阿里AE
+
+地址：杭州，base 杭州西溪园区
+
+岗位：Java
+
+联系人：群内联系
+
+## 24.东莞华辉
+
+地址：东莞南城众创金融街
+
+岗位：java 后端
+
+http://www.huahuipay.cn/col.jsp?id=101
+
+联系人：群内联系
+
+## 25.拼多多
+
+地址：上海金虹桥国际中心
+
+岗位：引擎开发工程师 
+
+联系人：Primary2013
+
+## 26.同花顺
+
+地址：杭州余杭
+
+岗位：Java后端
+
+联系人：邮箱：mingxi@myhexin.com
+
+## 27.雷霆游戏
+
+地址：深圳/广州/厦门
+
+岗位：校招2023毕业生
+
+联系人：wx：Hailnrg
+
+![](http://cdn.aixiaoxian.vip/blog/e95b2e-3a3f17318f5dbef2d95808571349adee.jpeg)
+
+## 28.招银网络科技
+
+地址：成都/杭州/深圳
+
+岗位：校招社招都可以投 java/前端/大数据
+
+联系人：群内联系
+
+![](http://cdn.aixiaoxian.vip/blog/3adb18-52bb89ef1afffd12760c5b83095c3098.jpeg)
+
 # 更多
 
 如果你想交流或者获取更多相关信息，可以关注我的公众号：艾小仙，如果你也想进入内推群，也可以通过公众号找到我的联系方式联系我，我会邀请你加入群聊。
